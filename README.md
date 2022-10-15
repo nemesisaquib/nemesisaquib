@@ -17,7 +17,7 @@
 
 - 👨‍💻 All of my projects are available at [https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989)
 
-- 💬 Ask me about **hi there 👋 I'm is aquib I am graphic & Web designer I hope you guys can help me to improve my skills**
+- 💬 Ask me about **hi there 👋 I'm  aquib I am graphic & Web designer I hope you guys can help me to improve my skills**
 
 - 📫 How to reach me **nemesisgraphic19@gmail.com**
 
