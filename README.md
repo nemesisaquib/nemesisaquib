@@ -19,7 +19,7 @@
 
 - 💬 Let’s connect! Always eager to learn and grow in the design community.
 
- <p>- 📫<strong>Email me:</strong> <a href="mailto:nemesisgraphic19@gmail.com">**nemesisgraphic19@gmail.com**</a></p>
+- 📫<strong>Email me:</strong> <a href="mailto:nemesisgraphic19@gmail.com">**nemesisgraphic19@gmail.com**</a>
 
 - ⚡ Fun fact **I enjoy playing "PC" game LIKE <GOD OF WAR>**
 
