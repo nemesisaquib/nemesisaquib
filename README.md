@@ -7,19 +7,20 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
-- 🔭 I’m currently working at Branding 360 for the past 2.2 years.**
+- 🔭 Currently working at Branding 360 | **2.2+ years of experience in UI/ Web Designer**.
 
-- 🌱 I have experience in CSS responsive design, UI/UX, and UI design using WordPress, HTML, CSS, Bootstrap, Webflow, Figma, and Adobe XD.**
+- 🌱 🎨 UI/UX Design | 🌍 Webflow & WordPress | 📱 Responsive Design 🛠️ HTML, CSS, Bootstrap | ✏️ Figma, Adobe XD
 
-- 👯 I’m  looking to collaborate on **any projects right now.**
+- 👯 Open to collaborations on **Exciting Projects**!
 
-- 🤝 I’m looking for help with **webflow and ux**
+- 🤝 Looking to improve my Webflow & UX skills.
 
-- 👨‍💻 All of my projects are available at [https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989) [https://aquibdesigner.site](https://aquibdesigner.site)
+- 👨‍💻 All of my projects are available at **[https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989) [https://aquibdesigner.site](https://aquibdesigner.site)**
 
-- 💬 Ask me about **hi there 👋 I'm  Aquib I am a UI/Web designer. I hope you guys can help me to improve my skills**
+- 💬 Let’s connect! Always eager to learn and grow in the design community.
 
-- 📫 How to reach me **nemesisgraphic19@gmail.com**
+- 📫 <p>📩 <strong>Email me:</strong> <a href="mailto:nemesisgraphic19@gmail.com">**nemesisgraphic19@gmail.com**</a></p>
+
 
 - ⚡ Fun fact **I enjoy playing "PC" game LIKE <GOD OF WAR>**
 
