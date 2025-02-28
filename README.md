@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
-- 🔭 I’m currently working at Branding 360 for the past 1.4 years.**
+- 🔭 I’m currently working at Branding 360 for the past 2.2 years.**
 
 - 🌱 I have experience in CSS responsive design, UI/UX, and UI design using WordPress, HTML, CSS, Bootstrap, Webflow, Figma, and Adobe XD.**
 
@@ -15,7 +15,7 @@
 
 - 🤝 I’m looking for help with **webflow and ux**
 
-- 👨‍💻 All of my projects are available at [https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989)
+- 👨‍💻 All of my projects are available at [https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989) [https://aquibdesigner.site](aquibdesigner.site)
 
 - 💬 Ask me about **hi there 👋 I'm  aquib I am UIUX & Web designer I hope you guys can help me to improve my skills**
 
