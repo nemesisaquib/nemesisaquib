@@ -15,9 +15,9 @@
 
 - 🤝 I’m looking for help with **webflow and ux**
 
-- 👨‍💻 All of my projects are available at [https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989) [https://aquibdesigner.site](aquibdesigner.site)
+- 👨‍💻 All of my projects are available at [https://linktr.ee/aquibjaved.1989](https://linktr.ee/aquibjaved.1989) [https://aquibdesigner.site](https://aquibdesigner.site)
 
-- 💬 Ask me about **hi there 👋 I'm  aquib I am UIUX & Web designer I hope you guys can help me to improve my skills**
+- 💬 Ask me about **hi there 👋 I'm  aquib I am a UI/Web designer. I hope you guys can help me to improve my skills**
 
 - 📫 How to reach me **nemesisgraphic19@gmail.com**
 
